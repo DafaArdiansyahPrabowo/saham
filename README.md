@@ -1,0 +1,2 @@
+# saham
+Semoga berhasil
